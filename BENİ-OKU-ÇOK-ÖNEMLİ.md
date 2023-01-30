@@ -1,0 +1,7 @@
+HEPİNİZE MERHABA ARKADAŞLAR BEN Gece Development den Daeky SİZLERE TAMAMEN KENDİ YAPMIŞ OLDUĞUM ESKİ RİNGO BOTUN ALTYAPISINI VERİYORUM 
+
+Gece Development e ABONE OLUN : https://www.youtube.com/channel/UCo6RpKrVto75oaYUEQH9lSQ
+
+DİSCORD ADRESİMİZ : https://discord.gg/BN2ZGpnj8p
+
+VALLAHA Gece Development e ABONE OLCAM ARTIK OLMAK ZORUNDASIN
